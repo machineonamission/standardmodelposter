@@ -3,6 +3,11 @@ A poster I designed that depicts the Standard Model of Elementary Particles
 
 ![poster](<Artboard 1.svg>)
 
+# BUY IT HERE
+https://www.redbubble.com/i/poster/The-Standard-Model-of-Elementary-Particles-by-machinemission/172307577.LVTDI
+
+Or you are free to print it yourself by downloading the files.
+
 # TERMS OF USE/LICENSE
 ## you are free to:
 - use this poster for personal use
