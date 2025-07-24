@@ -9,6 +9,9 @@ https://www.redbubble.com/i/poster/The-Standard-Model-of-Elementary-Particles-by
 Or you are free to print it yourself by downloading the files.
 
 # TERMS OF USE/LICENSE
+This poster is licensed under the Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
+https://creativecommons.org/licenses/by-nc-sa/4.0/deed.en
+
 ## you are free to:
 - use this poster for personal use
 - print your own copy of any size
